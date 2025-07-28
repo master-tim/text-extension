@@ -1,1 +1,1 @@
-# text-extension
+# Privacy Policy for TextRefine Pro
